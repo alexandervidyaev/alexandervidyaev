@@ -1,4 +1,4 @@
-### Hi there 👋
+### Greetings, my friend 👋
 
 * 👉 My [Wiki](https://github.com/alexandervidyaev/wiki/wiki) 📜📚
 
