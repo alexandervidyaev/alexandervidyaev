@@ -1,6 +1,6 @@
 ### Greetings, my friend 👋
 
-* 👉 My [Wiki](https://github.com/alexandervidyaev/wiki/wiki) 📜📚
+* 👉 My [Wiki](https://github.com/alexandervidyaev/wiki/wiki) 📚
 
 
 <!--
